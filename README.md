@@ -1,1 +1,1 @@
-# Grupo_01-Solu-esTech
+# Grupo_01-SolucoesTech
